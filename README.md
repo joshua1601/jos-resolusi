@@ -1,0 +1,2 @@
+# jos-resolusi
+punya jos
